@@ -2,7 +2,7 @@
 
 | 自治体名 | 告示日 | 投票日 | 立候補予定者（年齢・新現元） | X（旧Twitter）アカウント |
 | :--- | :--- | :--- | :--- | :--- |
-| **岡山県 備前市** | 5月10日 | 5月17日 | 中西ひろやす(73・現)、松本ひとし(75・現) | [@jcp_okayama](https://x.com/jcp_okayama) |
+| **岡山県 備前市** | 5月10日 | 5月17日 | 中西ひろやす(73・現)、松本ひとし(75・現) | [@nakanishi_hrys](https://x.com/nakanishi_hrys?s=20)[@jcp_okayama](https://x.com/jcp_okayama) |
 | **宮城県 石巻市** | 5月17日 | 5月24日 | 斉藤澄子(57・現) | [@saitousumiko](https://x.com/saitousumiko) |
 | **千葉県 野田市** | 5月17日 | 5月24日 | 星野幸治(77・現)、寺田敬子(66・新) | [@jcp_noda](https://x.com/jcp_noda) |
 | **千葉県 鴨川市** | 5月17日 | 5月24日 | 藤本せいゆき(71・現) | - |
