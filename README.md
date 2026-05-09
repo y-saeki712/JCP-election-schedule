@@ -8,7 +8,7 @@
 | **宮城県 石巻市** | 28 | 5月17日 | 5月24日 | 斉藤澄子(57・現) | [斎藤澄子@Saito_Sumiko53](https://x.com/Saito_Sumiko53)|
 | **千葉県 野田市** | 28 | 5月17日 | 5月24日 | 星野幸治(77・現)、寺田けい子(66・新) | [寺田けい子@mumuchaimilktea](https://x.com/mumuchaimilktea)|
 | **千葉県 鴨川市** | 16 | 5月17日 | 5月24日 | 藤本せいゆき(71・現) |[藤本せいゆき@Jcp_fujimotosei](https://x.com/Jcp_fujimotosei)|
-| **熊本県 菊池市** | 18 | 5月17日 | 5月24日 | 高崎ただし(39・新) | [高崎ただし@negi308502742](https://www.jcp.or.jp/list/member/432105-02)|
+| **熊本県 菊池市** | 18 | 5月17日 | 5月24日 | 高崎ただし(39・新) | [高崎ただし@negi308502742](https://www.jcp.or.jp/negi308502742)|
 | **福島県 二本松市** | 20 | 5月24日 | 5月31日 | 斎藤広二(76・現)、たいら敏子(72・現)、かんの明(69・現) |[斎藤広二@f1dQoJ9b36eHFEG](www.jcp.or.jp/f1dQoJ9b36eHFEG)|
 | **島根県 江津市** | 14 | 5月24日 | 5月31日 | 多田伸治(51・現)、森川よしひで(69・現) |[多田伸治@tadashinji_jcp](www.jcp.or.jp/tadashinji_jcp)、[森川よしひで@Morikawakasaku](www.jcp.or.jp/Morikawakasaku)|
 
