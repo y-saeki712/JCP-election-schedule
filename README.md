@@ -1,6 +1,8 @@
 # 2026年5-6月 日本共産党 地方選挙予定一覧
 
-[日本共産党公式HP情報](https://www.jcp.or.jp/list/elections/)
+[日本共産党公式HP情報](https://www.jcp.or.jp/list/elections/) <br>
+管理人：[**ゆうま＠改憲反対！9条まもれ！**@YumaSaeki2](https://x.com/YumaSaeki2) <br>
+⇒　間違い等ありましたら、ご連絡ください。<br>
 
 | 自治体名 | 定数 | 告示日 | 投票日 | 立候補予定者（年齢・新現元） | X（旧Twitter）アカウント |
 | :--- | :--- | :--- | :--- | :--- | :--- |
