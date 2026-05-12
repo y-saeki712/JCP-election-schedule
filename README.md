@@ -17,6 +17,7 @@
 | **京都府 宮津市** | 12 | 6月14日 | 6月21日 | うつのみや綾(56・現)、長林三代 (69・現) |-|
 | **鳥取県 米子市** | 26 | 6月14日 | 6月21日 | 又野史朗(55・現)、錦織よう子(74・現) |-|
 | **東京都 立川市** | 28 | 6月14日 | 6月21日 | 浅川修一（現）、中町さとし（現）、永元きょう子（現）、 若木さなえ（現）|[浅川修一@asakawashuuichi](https://X.com/asakawashuuichi)、[中町さとし@Sts_Nakamachi](https://X.com/Sts_Nakamachi)、[永元きょう子@kyoko8129](https://X.com/kyoko8129)、[若木さなえ@wakakisanae](https://X.com/wakakisanae)、[市議団 https://jcp-tachikawa.jp/hp/](https://jcp-tachikawa.jp/hp/)|
+| **滋賀県 知事選挙** | 26 | 6月18日 | 7月5日 | 坪田いくお |[坪田いくお@tsubotaikuo41](https://X.com/tsubotaikuo41)|
 
 ### 特記事項
 * **定数削減:** 多くの自治体で定数が削減（石巻市-2、鴨川市-2、菊池市-1、二本松市-2、江津市-2、宮津市-2）されており、少数激戦が予想されます。
