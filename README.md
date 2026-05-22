@@ -11,7 +11,7 @@
 | **千葉県 野田市** | 28 | 5月17日 | 5月24日 | 星野幸治(77・現)、寺田けい子(66・新) | [星野幸治@Hosino60mk](https://x.com/Hosino60mk)、[寺田けい子@mumuchaimilktea](https://x.com/mumuchaimilktea)|
 | **千葉県 鴨川市** | 16 | 5月17日 | 5月24日 | 藤本せいゆき(71・現) |[藤本せいゆき@Jcp_fujimotosei](https://x.com/Jcp_fujimotosei)|
 | **熊本県 菊池市** | 18 | 5月17日 | 5月24日 | 高崎ただし(39・新) | [高崎ただし@negi308502742](https://x.com/negi308502742)|
-| **福島県 二本松市** | 20 | 5月24日 | 5月31日 | 斎藤広二(76・現)、たいら敏子(72・現)、かんの明(69・現) |[斎藤広二@jcp_saitohiroji](https://x.com/jcp_saitohiroji)|
+| **福島県 二本松市** | 20 | 5月24日 | 5月31日 | 斎藤広二(76・現)、たいら敏子(72・現)、かんの明(69・現) |[斎藤広二@jcp_saitohiroji](https://x.com/jcp_saitohiroji)、[たいら敏子@taira_toshiko](https://x.com/taira_toshiko)|
 | **島根県 江津市** | 14 | 5月24日 | 5月31日 | 多田伸治(51・現)、森川よしひで(69・現) |[多田伸治@tadashinji_jcp](https://X.com/tadashinji_jcp)、[森川よしひで@Morikawakasaku](https://X.com/Morikawakasaku)|
 | **長崎県 南島原市** | 17 | 6月7日 | 6月14日 | いみ毅（伊見たけし）（67・新）|- 17議席に対して、19人が立候補予想|
 | **京都府 宮津市** | 12 | 6月14日 | 6月21日 | うつのみや綾(56・現)、長林三代 (69・現) |-|
