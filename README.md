@@ -13,7 +13,7 @@
 | **熊本県 菊池市** | 18 | 5月17日 | 5月24日 | 高崎ただし(39・新) | [高崎ただし@negi308502742](https://x.com/negi308502742)|
 | **福島県 二本松市** | 20 | 5月24日 | 5月31日 | 斎藤広二(76・現)、たいら敏子(72・現)、かんの明(69・現) |[斎藤広二@jcp_saitohiroji](https://x.com/jcp_saitohiroji)、[たいら敏子@taira_toshiko](https://x.com/taira_toshiko)、[かんの明@kanno_akira_jcp](https://x.com/kanno_akira_jcp)|
 | **島根県 江津市** | 14 | 5月24日 | 5月31日 | 多田伸治(51・現)、森川よしひで(69・現) |[多田伸治@tadashinji_jcp](https://X.com/tadashinji_jcp)、[森川よしひで@Morikawakasaku](https://X.com/Morikawakasaku)|
-| **長崎県 南島原市** | 17 | 6月7日 | 6月14日 | いみ毅（伊見たけし）（67・新）|- 17議席に対して、19人が立候補予想|
+| **長崎県 南島原市** | 17 | 6月7日 | 6月14日 | いみ毅（伊見たけし）（67・新）|[いみ毅@friedrichsfeld1](https://X.com/friedrichsfeld1)- 17議席に対して、19人が立候補予想|
 | **京都府 宮津市** | 12 | 6月14日 | 6月21日 | うつのみや綾(56・現)、長林三代 (69・現) |-|
 | **鳥取県 米子市** | 26 | 6月14日 | 6月21日 | 又野史朗(55・現)、錦織よう子(74・現) |-|
 | **東京都 立川市** | 28 | 6月14日 | 6月21日 | 浅川修一（現）、中町さとし（現）、永元きょう子（現）、 若木さなえ（現）|[浅川修一@asakawashuuichi](https://X.com/asakawashuuichi)、[中町さとし@Sts_Nakamachi](https://X.com/Sts_Nakamachi)、[永元きょう子@kyoko8129](https://X.com/kyoko8129)、[若木さなえ@wakakisanae](https://X.com/wakakisanae)、[市議団 https://jcp-tachikawa.jp/hp/](https://jcp-tachikawa.jp/hp/)|
